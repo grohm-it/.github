@@ -1,0 +1,1 @@
+Grohm è la nuovissima gamma di prodotti studiata da Emme Esse SpA per la ricarica dei veicoli elettrici, perfetta per soddisfare in modo sicuro e affidabile tutte le esigenze in ambito residenziale e commerciale.
